@@ -1,0 +1,1 @@
+# arikpotech-3mtt-second-project-on-responsive-landing-page
